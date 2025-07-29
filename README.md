@@ -55,5 +55,5 @@ I bring founder empathy, storytelling obsession, and early-stage insight — all
 
 If you're a recruiter, founder, or fellow researcher — feel free to reach out.
 
-📧 your-email@example.com  
+📧 mananmahi.mahi@gmail.com 
 🔗 [LinkedIn](https://www.linkedin.com/in/ms01/)  
