@@ -15,7 +15,6 @@ It includes:
 > 📌 Highly recommended: View via Canva to experience the **animated narrative flow** and **visual positioning** of each insight.
 
 🔗 [**View Animated Pitch Deck on Canva**](https://www.canva.com/design/DAGud9vdxao/WEep4lB22W27uo8zLlEyCg/edit?utm_content=DAGud9vdxao&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)  
-📄 [Download Static PDF Version](./pitch-deck.pdf)
 
 ---
 
